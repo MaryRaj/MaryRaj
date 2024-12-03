@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **mary.raj@bca.christuniversity.in**
 
-- 📄 Know about my experiences ["C:\Users\HP\Downloads\Resume_Maryyy.pdf"]("C:\Users\HP\Downloads\Resume_Maryyy.pdf")
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Jzt2CNoh7_asvzc-1lWXEYDHNsixaWoc/view?usp=sharing](https://drive.google.com/file/d/1Jzt2CNoh7_asvzc-1lWXEYDHNsixaWoc/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
